@@ -1,2 +1,2 @@
-NIGGER
-Šprungl je těžkej RASISTA
+Řešení úkolů v Issues
+👨🏻🤜🏻💥👨🏿 = GOOD
