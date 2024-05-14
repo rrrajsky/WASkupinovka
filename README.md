@@ -1,2 +1,2 @@
-Řešení úkolů v Issues
+Řešení úkolů v Issues <br>
 👨🏻🤜🏻💥👨🏿 = GOOD
