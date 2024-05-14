@@ -1,2 +1,2 @@
 NIGGER
-Šprungl je tžkej RASISTA
+Šprungl je těžkej RASISTA
