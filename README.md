@@ -1,8 +1,8 @@
 Řešení úkolů v Issues <br>
-http://s-crm-c3c6.dev.spsejecna.net/
-PO-Novotný
-SCRUM Master-Rajský
-Kodér-Nguyen
-Kodér-Novotný
-JS programátor-Rajský
-JS programátor-Calda
+http://s-crm-c3c6.dev.spsejecna.net/<br> <br>
+PO-Novotný<br>
+SCRUM Master-Rajský<br>
+Kodér-Nguyen<br>
+Kodér-Novotný<br>
+JS programátor-Rajský<br>
+JS programátor-Calda<br>
